@@ -1,6 +1,6 @@
 # **Roman Diyanov**
 
-![my foto](https://cloud.mail.ru/public/prxp/SZ4tYMwGc)
+![my foto](https://thumb.cloud.mail.ru/weblink/thumb/xw1/prxp/SZ4tYMwGc)
 
 ## **Junior Front-end Developer**
 
